@@ -1,1 +1,1 @@
-Center Fielder Analysis will be uploaded shortly - plots are currently uploaded as CF*
+Center Fielder Analysis plots are currently uploaded as CF*
